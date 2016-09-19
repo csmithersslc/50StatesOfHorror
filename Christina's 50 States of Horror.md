@@ -1,55 +1,55 @@
 Christina's 50 States of Horror
 
-Alabama - Dead Birds
+Alabama - Dead Birds, Body Snatchers, Laid to Rest
 Alaska - 30 Days of Night
-Arizona - Piranha
-Arkansas
-California - Lost Boys, Zodiac, Sharknado, American Horror Story S1
+Arizona - Piranha, Psycho
+Arkansas - he Town That Dreaded Sundown
+California - Lost Boys, Zodiac, Sharknado, American Horror Story S1, Poltergeist, Scream
 Colorado - The Shining
-Connecticut
-Delaware
-Florida - Day of the Dead, American Horror Story S4
-Georgia - Walking Dead
-Hawaii - Snakes on a Plane
-Idaho
-Illinois
-Indiana - Stranger Things
+Connecticut - A Haunting in Connecticut, I Spit On Your Grave
+Florida - Day of the Dead, American Horror Story S4, Jeepers Creepers
+Georgia - Deliverance, Walking Dead
+Hawaii - Snakes on a Plane, A Perfect Getaway
+Idaho - Iado Transfer
+Illinois - Halloween
+Indiana - Stranger Things, Close Encounters of the Third Kind, An American Crime
 Iowa - The Crazies
-Kansas
-Kentucky 
+Kansas - Dark Places
+Kentucky - Return of the Living Dead
 Louisiana - The Skeleton Key, Interview with the Vampire, American Horror Story S3
-Maine -  It, Misery
-Maryland - The Exorcist, Blair Witch Project 
-Massachusetts - Lizzie Borden, American Horror Story S2
-Michigan
-Minnesota - Dawn of the Dead
-Mississippi
-Missouri
-Montana
-Nebraska
-Nevada
-New Hampshire
+Maine -  It, Misery, Pet Sematary, Carrie
+Maryland - Blair Witch Project, Silence of the Lambs 
+Massachusetts - Lizzie Borden, American Horror Story S2, Session 9, Jaws
+Michigan - It Follows, Mr Jingles
+Minnesota - Jennifer's Body
+Mississippi - Straw Dogs, The Beast Within
+Missouri - You're Next
+Montana - Alien Abduction: Incident in Lake County
+Nebraska - Children Of The Corn
+Nevada - Tremors
+New Hampshire - The Dead Zone
 New Jersey - Friday the 13th Series
 New Mexico - The Hills Have Eyes
-New York - The Amityville Horror
-North Carolina
-North Dakota 
+New York - The Amityville Horror, American Psycho
+North Carolina - I Know What You Did Last Summer, Pumpkinhead
+North Dakota - Fargo, Leprechaun
 Ohio - Nightmare on Elm Street series 
-Oklahoma
-Oregon - The Fog 
-Pennsylvania - Night of the Living Dead, Land of the Dead
-Rhode Island - Sixth Sense
-South Carolina
-South Dakota
+Oklahoma - Bug, Splinter
+Oregon - The Fog, The Ward, Just Before Dawn 
+Pennsylvania - Night of the Living Dead, Land of the Dead, Sixth Sense
+Rhode Island - The Conjuring
+South Carolina - Slither
+South Dakota - Badlands
 Tennessee - Evil Dead, Evil Dead 2, Army of Darkness
 Texas - Texas Chainsaw Massacure
 Utah - Carnival of Horrors
-Vermont
-Virginia
-Washington
-West Virginia - Deliverance
-Wisconsin - Ed Gein
-Wyoming - The Vanishing, Natural Born Killers, Close Encounter of the Third Kind
+Vermont - What Lies Beneath, Beetlejuice
+Virginia - Cherry Falls, Mama
+Washington - The Ring
+Washington D.C. - The Exorcist
+West Virginia - Wrong Turn
+Wisconsin - Ed Gein, Dawn of the Dead
+Wyoming - The Vanishing, Natural Born Killers, Close Encounter of the Third Kind, Joy Ride
 
 
 TERRITORIES
