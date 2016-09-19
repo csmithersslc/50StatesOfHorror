@@ -10,7 +10,7 @@ Christina's 50 States of Horror
 * Florida - Day of the Dead, American Horror Story S4, Jeepers Creepers
 * Georgia - Deliverance, Walking Dead
 * Hawaii - Snakes on a Plane, A Perfect Getaway
-* Idaho - Idado Transfer
+* Idaho - Idaho Transfer
 * Illinois - Halloween
 * Indiana - Stranger Things, Close Encounters of the Third Kind, An American Crime
 * Iowa - The Crazies
@@ -42,7 +42,7 @@ Christina's 50 States of Horror
 * South Dakota - Badlands
 * Tennessee - Evil Dead, Evil Dead 2, Army of Darkness
 * Texas - Texas Chainsaw Massacure
-* Utah - Carnival of Horrors, Silent night Deadly night
+* Utah - Carnival of Horrors, Silent Night Deadly Night
 * Vermont - What Lies Beneath, Beetlejuice
 * Virginia - Cherry Falls, Mama
 * Washington - The Ring
