@@ -3,14 +3,14 @@ Christina's 50 States of Horror
 Alabama - Dead Birds, Body Snatchers, Laid to Rest
 Alaska - 30 Days of Night
 Arizona - Piranha, Psycho
-Arkansas - he Town That Dreaded Sundown
+Arkansas - The Town That Dreaded Sundown
 California - Lost Boys, Zodiac, Sharknado, American Horror Story S1, Poltergeist, Scream
 Colorado - The Shining
 Connecticut - A Haunting in Connecticut, I Spit On Your Grave
 Florida - Day of the Dead, American Horror Story S4, Jeepers Creepers
 Georgia - Deliverance, Walking Dead
 Hawaii - Snakes on a Plane, A Perfect Getaway
-Idaho - Iado Transfer
+Idaho - Idado Transfer
 Illinois - Halloween
 Indiana - Stranger Things, Close Encounters of the Third Kind, An American Crime
 Iowa - The Crazies
@@ -42,7 +42,7 @@ South Carolina - Slither
 South Dakota - Badlands
 Tennessee - Evil Dead, Evil Dead 2, Army of Darkness
 Texas - Texas Chainsaw Massacure
-Utah - Carnival of Horrors
+Utah - Carnival of Horrors, Silent night Deadly night
 Vermont - What Lies Beneath, Beetlejuice
 Virginia - Cherry Falls, Mama
 Washington - The Ring
