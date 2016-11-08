@@ -31,7 +31,7 @@ Christina's 50 States of Horror
 * New Jersey - Friday the 13th Series
 * New Mexico - The Hills Have Eyes
 * New York - The Amityville Horror, American Psycho
-* North Carolina - I Know What You Did Last Summer, Pumpkinhead
+* North Carolina - I Know What You Did Last Summer,I know What You Did Las Summer 2, Pumpkinhead
 * North Dakota - Fargo, Leprechaun
 * Ohio - Nightmare on Elm Street series 
 * Oklahoma - Bug, Splinter
