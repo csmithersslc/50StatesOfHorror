@@ -16,7 +16,7 @@ Christina's 50 States of Horror
 * Iowa - The Crazies, What's the Matter With Helen, The Coverup
 * Kansas - Dark Places, Supernatural Series (source of the main characters)
 * Kentucky - Return of the Living Dead, Dead Moon Rising, Kentucky Woman, Shadow People, Death Tunnel, Zombie Planet
-* Louisiana - The Skeleton Key, Interview with the Vampire, American Horror Story S3
+* Louisiana - The Skeleton Key, Interview with the Vampire, American Horror Story S3, The Alligator People, Venom, The Reaping, The St Francisville Experiment, Sister Sister, Hush Hush Sweeet Charlotte, The Last Exorcism, Eaten Alive, The Mummy's Curse, Creature from the Black Lake, Creature, Netherworld, Hatchet III, Hatchet II, Hatchet, THe Final Project, Cat and the Canary, The Dead One, The Zombie Farm, Swamp Women
 * Maine -  It, Misery, Pet Sematary, Carrie, Lake Placid, Graveyard Shift, Dreamcatcher, The Mist, Needful Things, Behind the Wall
 * Maryland - Blair Witch Project, Silence of the Lambs, The Bay, Book of Shadows: Blair Witch 2
 * Massachusetts - Lizzie Borden, American Horror Story S2, Session 9, Jaws, City of the Dead, Reanimator, Beyond Re-Animator, Teh Reincarnation, Warlock, The Shuttered Room, The Legend of Lucy Keyes, The Lords of Salem, The Secret Village
