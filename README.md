@@ -1,6 +1,6 @@
 Christina's 50 States of Horror
 
-* Alabama - Dead Birds, Body Snatchers, Laid to Rest
+* Alabama - Dead Birds, Body Snatchers, Laid to Rest, Jaws of Satan, Wife Mother Murderer, The Grass Harp
 * Alaska - 30 Days of Night, Call of the Yukon, The Fourth Kind, The Barber, Unnatural, Wyvern, Ice Road Terror
 * Arizona - Piranha, Psycho, Fire in the Sky, Eight LEgged Freaks, Kingdom of the Spiders, The Wraith, Alien Invasion Arizona, Netherbeast Incorporated, Night Skies, Christmas Lillies of the Field
 * Arkansas - The Town That Dreaded Sundown, The LEgend of Boggy Creek, A Bothered Conscience, The Shaddow of Chikara
@@ -57,6 +57,6 @@ TERRITORIES
 * American Samoa
 * Guam
 * North Mariana Islands
-* Puerto Rico -  Species, Creature from the Haunted Sea
+* Puerto Rico -  Species, Creature from the Haunted Sea, The Caller, Frankenstein Meets the Space Monster, The Condemned, Extortion, Vampiros, A Step Away, Barricido
 * US Virgin Islands - Open Water
 
