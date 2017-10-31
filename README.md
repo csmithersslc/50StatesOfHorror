@@ -2,12 +2,12 @@ Christina's 50 States of Horror
 
 * Alabama - Dead Birds, Body Snatchers, Laid to Rest, Jaws of Satan, Wife Mother Murderer, The Grass Harp
 * Alaska - 30 Days of Night, Call of the Yukon, The Fourth Kind, The Barber, Unnatural, Wyvern, Ice Road Terror
-* Arizona - Piranha, Psycho, Fire in the Sky, Eight LEgged Freaks, Kingdom of the Spiders, The Wraith, Alien Invasion Arizona, Netherbeast Incorporated, Night Skies, Christmas Lillies of the Field
+* Arizona - Piranha, Psycho, Fire in the Sky, Eight Legged Freaks, Kingdom of the Spiders, The Wraith, Alien Invasion Arizona, Netherbeast Incorporated, Night Skies, Christmas Lillies of the Field
 * Arkansas - The Town That Dreaded Sundown, The LEgend of Boggy Creek, A Bothered Conscience, The Shaddow of Chikara
 * California - Lost Boys, Zodiac, Sharknado, American Horror Story S1, Poltergeist, Scream, American Horror Story S5, Apt Pupil, Bone Eater, Curse of the Fourty Niner, Snow Sharks, Duel, Death Valley, Starry Eyes, Hellraiser Inferno, The Eye (American remake), Resident Evil: Afterlife, The Purge, The Purge: Anarchy, This is the End, Lord of Illusions, They Live, Barton Fink, Lost Highway 
 * Colorado - The Shining, Phantoms, Misery, Snowbeast, The Chase
 * Connecticut - A Haunting in Connecticut, I Spit On Your Grave, Inkeepers, House of the Devil, Last House of the Left
-* Florida - Day of the Dead, American Horror Story S4, Jeepers Creepers, Frogs, The Matinee, Revenge of the Creature, Blood Rage, The Gruesome Twosome, Mega Piranha, Megga Shark Versus Crocosaurus
+* Florida - Day of the Dead, American Horror Story S4, Jeepers Creepers, Frogs, The Matinee, Revenge of the Creature, Blood Rage, The Gruesome Twosome, Mega Piranha, Mega Shark Versus Crocosaurus
 * Georgia - Deliverance, Walking Dead, Squirm
 * Hawaii - Snakes on a Plane, A Perfect Getaway
 * Idaho - Idaho Transfer, Shredder
